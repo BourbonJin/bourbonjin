@@ -4,7 +4,7 @@ I'm Jin.
 
 
 
-- 🔭 I’m currently working on DCS WORLD.
+- 🔭 I’m currently playing  DCS WORLD.
 - 🌱 I’m currently learning vibe coding.
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
